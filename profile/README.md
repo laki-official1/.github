@@ -7,7 +7,7 @@
 Основная точка входа — **Лаки Официальный сайт**, через который выполняется **Лаки Казино Вход** и открывается доступ к личному кабинету.
 
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:12px 18px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700;">
     Перейти в Laki Casino
   </a>
@@ -21,7 +21,7 @@
 
 Если основной адрес не открывается, используется **laki зеркало**. Это резервный способ входа, который сохраняет все данные и не требует дополнительных действий. В некоторых случаях встречается формулировка **зеркало laki**, но это тот же доступ.
 
-👉 [Открыть доступ к Laki Casino](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+👉 [Открыть доступ к Laki Casino](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -33,7 +33,7 @@
 
 После этого пользователь автоматически получает доступ к системе и может сразу перейти к играм.
 
-👉 [Пройти регистрацию](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+👉 [Пройти регистрацию](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -64,7 +64,7 @@
 
 Для стабильного доступа используется не только основной сайт, но и **Лаки Казино Зеркало**, что делает платформу более надёжной.
 
-👉 [Перейти на платформу](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+👉 [Перейти на платформу](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -98,7 +98,7 @@
 
 **Laki Casino** — это платформа с быстрым входом, простой регистрацией и удобным доступом к играм. Пользователь получает всё сразу: аккаунт, бонусы и игровой каталог без сложной навигации.
 
-👉 [Открыть Laki Casino](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+👉 [Открыть Laki Casino](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
